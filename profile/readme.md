@@ -1,1 +1,1 @@
-[[wisdomresearch.net]]
+<wisdomresearch.net>
