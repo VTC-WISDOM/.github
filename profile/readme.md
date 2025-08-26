@@ -1,1 +1,1 @@
-<wisdomresearch.net>
+visit [wisdomresearch.net]
