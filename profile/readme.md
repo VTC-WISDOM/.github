@@ -1,1 +1,1 @@
-visit [wisdomresearch.net](wisdomresearch.net)
+visit [wisdomresearch.net](https://wisdomresearch.net)
